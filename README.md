@@ -7,7 +7,7 @@
 [cromwell.nz](https://cromwell.nz)
 
 
-**All enquiries to :**
+**Contact :**
 
 
 [cromwell.centralotago@gmail.com](mailto:cromwell.centralotago@gmail.com)
